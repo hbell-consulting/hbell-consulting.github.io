@@ -1,1 +1,0 @@
-# hbell-consulting.github.io
